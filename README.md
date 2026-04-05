@@ -31,4 +31,4 @@ Engenheiro de software & hacker do bem com 5+ anos de experiência em **Python, 
 - [LinkedIn](https://www.linkedin.com/in/tambulukoki-tona-60552334a)  
 - [Twitter](https://twitter.com/Yaver432)  
 
-> “Sempre aprendendo, sempre construindo, sempre seguro.” 😎
+> Sempre aprendendo, sempre construindo 👍
